@@ -1,4 +1,4 @@
-0# lucy
+# lucy
 temp
 
 🎓: BSED from SYSTEM PLUS COLLEGE FOUDATION IN PHILIPPINES
